@@ -1,0 +1,2 @@
+# Magicandlogic
+GitHub Pages
